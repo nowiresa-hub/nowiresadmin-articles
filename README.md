@@ -41,8 +41,8 @@
 - VK: [NoWiresAdmin](https://vk.com/n0w1resdmin)  
 - Дзен: [NoWiresAdmin](https://dzen.ru/nowiresadmin)  
 - Pinterest: [NoWiresAdmin](https://ru.pinterest.com/NoWiresAdmin)  
-- YouTube: [NoWiresAdmin](https://www.youtube.com/@NoWiresAdmin) _(скоро)_  
-- TikTok: [NoWiresAdmin](https://www.tiktok.com/@nowiresadmin) _(скоро)_
+- YouTube: [NoWiresAdmin](https://www.youtube.com/@NoWiresAdmin)
+- TikTok: [NoWiresAdmin](https://www.tiktok.com/@nowiresadmin)
 
 ---
 
