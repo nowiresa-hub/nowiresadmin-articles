@@ -40,9 +40,14 @@
 - Telegram: [NoWiresAdmin](https://t.me/NoWiresAdmin)  
 - VK: [NoWiresAdmin](https://vk.com/n0w1resdmin)  
 - Дзен: [NoWiresAdmin](https://dzen.ru/nowiresadmin)  
+- Threads: [NoWiresAdmin](http://threads.com/@nowiresadmin)
+- Facebook: [NoWiresAdmin](https://www.facebook.com/groups/1508145616996522)
 - Pinterest: [NoWiresAdmin](https://ru.pinterest.com/NoWiresAdmin)  
+
+- Instagram: [NoWiresAdmin](https://www.instagram.com/nowiresadmin)
 - YouTube: [NoWiresAdmin](https://www.youtube.com/@NoWiresAdmin)
 - TikTok: [NoWiresAdmin](https://www.tiktok.com/@nowiresadmin)
+
 
 ---
 
